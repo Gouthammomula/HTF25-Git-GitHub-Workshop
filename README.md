@@ -8,5 +8,5 @@ Create a pull request with the best meme you find!
 
 **Deadline - 12 am**
 
-![Alt text](https://blog.codeitbro.com/wp-content/uploads/2025/08/git-remote-add-origin-meme.png)
+![Alt text](https://indianmemetemplates.com/wp-content/uploads/bahut-tez-ho-rahe-ho-saalo-carryminati-800x600.jpg?crop=1)
 1
